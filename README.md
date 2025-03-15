@@ -1,6 +1,5 @@
 wow boyf
 
-![Uploading wow.jpg…]()
 
 
 TEHYRE PLAYING MY CHEMICAL ROMANCE, NICOLE YOU KNOW IM SCAREF OF EMOS!!!1!!!!1!11!
