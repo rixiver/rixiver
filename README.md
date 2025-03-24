@@ -1,8 +1,3 @@
 
-
-
-TEHYRE PLAYING MY CHEMICAL ROMANCE, NICOLE YOU KNOW IM SCAREF OF EMOS!!!1!!!!1!11!
-
-![percgance](https://github.com/user-attachments/assets/0a5b8f25-074d-43b1-ac99-a7d452f49d63)
-
+https://i.pinimg.com/736x/ab/cd/e0/abcde01939bc93120d49b55db22815e4.jpg
 byi : slow resps , self deprecating jokes
