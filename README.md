@@ -5,7 +5,9 @@ byi : slow resps , eng/fil pref , s-afk most of the time
 
 
 
-https://github.com/user-attachments/assets/81cac867-c0bb-41a8-ae6a-ccb4d1da086f
+
+https://github.com/user-attachments/assets/96e9edd2-6a33-4c2b-a3ef-9b8ae83e9249
+
 
 me fr ^
 
