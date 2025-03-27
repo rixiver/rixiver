@@ -1,7 +1,7 @@
 I LOVE VKEI AAAAAAAAAHHHHHHHHHH
 
 
-byi : slow resps , eng/fil pref , s-afk most of the time
+byi : slow resps , eng/fil pref , s-afk most of the time , episodes every once in awhile lmfao!!
 
 
 
