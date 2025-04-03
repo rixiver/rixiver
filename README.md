@@ -3,7 +3,7 @@ I LOVE VKEI AAAAAAAAAHHHHHHHHHH
 
 byi : slow resps , eng/fil pref , s-afk most of the time , episodes every 7 business days
 
-int : fellow filipinos vro i need more filo friends
+int : fellow filipinos vro i need more filo friends , VKEI FANS!!!!!
 
 
 
