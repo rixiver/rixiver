@@ -1,4 +1,4 @@
-I LOVE VKEI AAAAAAAAAHHHHHHHHHH
+i walk around every once in awhile BECAUS THERES NOTHING TO DO IN THIS FRIENDSHIP IS MAGIC GAME
 
 
 byi : slow resps , eng/fil pref , s-afk most of the time , episodes every 7 business days
