@@ -1,5 +1,3 @@
-i walk around the map every once in a while BECAUS THERES NOTHING TO DO IN THIS FRIENDSHIP IS MAGIC GAME
-
 
 byi : slow resps , eng/fil pref , s-afk most of the time , episodes every 7 business days
 
