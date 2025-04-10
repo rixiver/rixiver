@@ -1,7 +1,5 @@
 
-byi : slow resps , eng/fil pref , s-afk most of the time , episodes every 7 business days
-
-int : fellow filipinos vro i need more filo friends , VKEI FANS!!!!! dont be shy guys im nice pleas int plsplspls
+a mathematician can mathematically mathematise mathematics in a mathematical mathematiculation. so if a mathematician can mathematise mathematics in mathematical mathematiculation, why cant you mathematically mathematise mathematics in a mathematical mathematiculation like the mathematician who mathematically mathematise mathematics in a mathematical mathematiculation mahalinmoko
 
 https://github.com/user-attachments/assets/96e9edd2-6a33-4c2b-a3ef-9b8ae83e9249
 
