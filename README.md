@@ -1,5 +1,4 @@
-
-a mathematician can mathematically mathematise mathematics in a mathematical mathematiculation. so if a mathematician can mathematise mathematics in mathematical mathematiculation, why cant you mathematically mathematise mathematics in a mathematical mathematiculation like the mathematician who mathematically mathematise mathematics in a mathematical mathematiculation mahalinmoko
+whag do i put here
 
 https://github.com/user-attachments/assets/96e9edd2-6a33-4c2b-a3ef-9b8ae83e9249
 
