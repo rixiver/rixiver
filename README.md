@@ -1,5 +1,4 @@
 whag do i put here
 
-https://github.com/user-attachments/assets/96e9edd2-6a33-4c2b-a3ef-9b8ae83e9249
+![loser](https://github.com/user-attachments/assets/26df7d27-fb11-4f7e-b520-8979a4a2eaf2)
 
-![haha](https://github.com/user-attachments/assets/10670cf0-f931-43f3-93ac-316e3d03b73f)
