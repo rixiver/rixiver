@@ -1,9 +1,19 @@
 
-![](https://komarev.com/ghpvc/?username=rixiver&label=♱)
 
-c+h enc ><
+<p align="center">
+  <img src="https://github.com/user-attachments/assets/10fb74df-aeba-411e-b7bc-671ba5ab608e" alt="eww" width="256">
+</p>
 
 
-<img width="736" height="691" alt="9fe2c1841b44066671da8104fde32c9b" src="https://github.com/user-attachments/assets/ce71bef9-1a6f-43cf-abd9-154d0d86d8f9" />
+<p align="center">
+  <a href="https://verixi.atabook.org/">ata</a> ✧ <a href="https://rixiver.straw.page/">sp</a>
+</p>
 
-ac sunopticon on twt
+<p align="center">c+h enc ><</p>
+
+<div align="center">
+  <img src="https://komarev.com/ghpvc/?username=rixiver&label=♱" alt="Profile view counter" />
+</div>
+
+
+
