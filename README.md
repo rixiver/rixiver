@@ -12,6 +12,6 @@
   <a href="https://verixi.atabook.org/">ata</a> ✧ <a href="https://rixiver.straw.page/">sp</a>
 </p>
 
-<p align="center">c+h enc ><</p>
+<p align="center">w2i , c+h enc ><</p>
 
 
