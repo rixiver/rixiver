@@ -1,3 +1,6 @@
+<div align="center">
+  <img src="https://komarev.com/ghpvc/?username=rixiver&label=♱"alt="Profile view counter"/>
+</div>
 
 
 <p align="center">
@@ -10,10 +13,5 @@
 </p>
 
 <p align="center">c+h enc ><</p>
-
-<div align="center">
-  <img src="https://komarev.com/ghpvc/?username=rixiver&label=♱" alt="Profile view counter" />
-</div>
-
 
 
